@@ -2,4 +2,4 @@
 Miraç Özcan AĞCABAY
 250541002
 FIRAT ÜNİVERSİTESİ TEKNOLOJİ FAKÜLTESİ -YAZILIM MÜHENDİSLİĞİ
-YouTube lİNKİ: https://youtu.be/xLGTI1x5O5M?si=qLMM14GHzCHx-V7q
+YouTube lİNKİ: https://youtu.be/xLGTI1x5O5M?si=buPGY-d-jwfSl-r4
