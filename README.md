@@ -7,5 +7,5 @@ Linkdedln : https://www.linkedin.com/in/miracagcabay/
 
 YouTube Linki: https://youtu.be/xLGTI1x5O5M?si=buPGY-d-jwfSl-r4
 
-[250541002_MiracOzcanAgcabay_YMT1105DersiFinalSınavı_Raporu.pdf](https://github.com/user-attachments/files/24719328/250541002_MiracOzcanAgcabay_YMT1105DersiFinalSinavi_Raporu.pdf)
+Araştırma Raporu : [250541002_MiracOzcanAgcabay_YMT1105DersiFinalSınavı_Raporu.pdf](https://github.com/user-attachments/files/24719328/250541002_MiracOzcanAgcabay_YMT1105DersiFinalSinavi_Raporu.pdf)
 
